@@ -6,7 +6,7 @@
 
 <p>Questo generatore non è solo uno strumento tecnico: è la soluzione perfetta per chi vuole divertirsi senza limiti. Usarlo significa evitare le frustrazioni legate alle microtransazioni e ai tempi di attesa. Ti garantiamo un’esperienza fluida e completa, in grado di restituirti il piacere puro del gioco. L'accesso immediato alle risorse ti permette di affrontare ogni sfida con il massimo delle tue potenzialità.</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Dunk City Dynasty](https://tinyurl.com/SfidaInMano)** 🔴🔴
+# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Dunk City Dynasty](https://tinyurl.com/LevelUpMobile)** 🔴🔴
 
 <h2>Ottieni Risorse Illimitate con il Nostro Generatore</h2>
 
@@ -82,4 +82,4 @@
 
 <p><strong>Clicca ora sul pulsante qui sotto e trasforma il tuo gioco con i migliori trucchi per Dunk City Dynasty!</strong></p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Dunk City Dynasty](https://tinyurl.com/SfidaInMano)** 🔴🔴
+# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Dunk City Dynasty](https://tinyurl.com/LevelUpMobile)** 🔴🔴
